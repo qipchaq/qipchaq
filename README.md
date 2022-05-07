@@ -2,7 +2,7 @@
 
 # Adil Nurkaliyev
 
-### Web-developer
+### Web Developer
 My contacts: [nurkali.adil@gmail.com](nurkali.adil@gmail.com) | [+420735077403](tel:+420735077403)
 
 ## About Me
